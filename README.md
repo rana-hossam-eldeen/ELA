@@ -37,6 +37,10 @@ Rowan Kahled moustafa
  ايهاب العبيد
 8. Project Files
 استراتيجية البراند والهوية البصرية.
-التصميمات والفيديوهات النهائية.
+التصميمات والفيديوهات النهائية
 العرض التقديمي النهائي.
+
+https://drive.google.com/drive/folders/1AtBzSdHqpZ0W7Yjc6fXtrm5mTZDKvnWt?usp=drive_link
+
+
 
